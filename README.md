@@ -219,4 +219,4 @@ Immortal Souls: John Turner is offered as a full version with all features and u
 Ready to embark on your vampire adventure? **Download Immortal Souls: John Turner free today and experience the thrill of the hunt!**
 
 ---
-**Last updated:** 2026-10-06 11:43:21 UTC
+**Last updated:** 2026-10-06 17:49:49 UTC
